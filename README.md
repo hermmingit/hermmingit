@@ -1,3 +1,5 @@
 <div align="center">
 
- ![](https://tenor.com/nD2lAjHKGAH.gif)
+ ![](https://files.catbox.moe/krdu16.png)
+
+[⤿ 𝚜𝚝𝚛𝚊𝚠](https://gregging-it.straw.page)
