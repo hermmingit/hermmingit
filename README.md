@@ -4,4 +4,4 @@
 
 ━
 
-[ꜱɪɢɴ ᴍʏ ᴀᴛᴀ ˙ᵕ˙](https://gregging-it.straw.page)
+[ꜱɪɢɴ ᴍʏ ᴀᴛᴀ ˙ᵕ˙](https://miikering.atabook.org)
