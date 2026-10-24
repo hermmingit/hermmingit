@@ -1,5 +1,7 @@
 <div align="center">
+ 
+<img width="689" height="185" alt="Screenshot 2026-10-24 123424" src="https://github.com/user-attachments/assets/55127b3c-1f92-4012-8bd3-fa636944f76b" />
 
- ![](https://files.catbox.moe/krdu16.png)
+━
 
-[⤿ 𝚜𝚝𝚛𝚊𝚠](https://gregging-it.straw.page)
+[ꜱɪɢɴ ᴍʏ ᴀᴛᴀ ˙ᵕ˙](https://gregging-it.straw.page)
